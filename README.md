@@ -13,6 +13,8 @@ https://jdhm.cfd
 
 **https://hanmanjingdian.com** （2023.8.16更新）
 
+https://jdhm.gay （2023.8.16更新）
+
 https://jdhm.sbs
 
 https://jdhm.buzz
