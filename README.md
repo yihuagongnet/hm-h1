@@ -11,6 +11,8 @@ https://jdhm.cfd
 ```
 # hm-h1 jdhm经典韩漫最新域名：
 
+**https://hanmanjingdian.com**
+
 https://jdhm.sbs
 
 https://jdhm.buzz
